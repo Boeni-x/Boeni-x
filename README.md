@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Boeni-x
+- 👀 I’m interested in Proframing and Tweaking
+- 🌱 I’m currently learning C#
+- 📫 you can reach me on disocrd Boenix#7777 / My server - https://discord.gg/w9qHFVVKSP
